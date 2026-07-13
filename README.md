@@ -21,3 +21,4 @@ Préparation :
     - Remettre sur le feu et ajouter le lait en plusieurs fois
     - Mélanger en continu pour éviter la formation de grumeaux
     - Ajouter la muscade, saler et poivrer.
+
